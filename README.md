@@ -16,7 +16,7 @@
 
 💵 Demo edition - $20 💵<br>
 ⭐️ Standard edition - $55 ⭐️<br>
-💎 Demo edition - $20 💎
+💎 Enterprice edition - $150 💎
 
 🌟 If you buy demo you get 35% off all other editions 🌟
 
