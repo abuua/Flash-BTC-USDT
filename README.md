@@ -1,10 +1,12 @@
 
 
-<h1 align="center">Flasher</h1>
+<h1>Flasher</h1>
 
 
+![Tether](https://github.com/namesolutions89/Flash-BTC-USDT/assets/154440753/0924d493-47df-4e6c-873c-1be76a02c75a)
 
-<p align="center">
+
+<p>
   <b>With this service you can flash cryptocurrency across whole blockhain.</b>
 </p>
 
