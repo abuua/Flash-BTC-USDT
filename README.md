@@ -22,6 +22,8 @@
 
 # Contact
 
+⚠️ **Im getting impersonate, always make sure you officialy deal with me, my username is @mmrtghk only without anything else** 
+
 💬Contact https://t.me/mmrtghk 🔗
 
 
