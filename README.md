@@ -24,4 +24,5 @@
 
 ⚠️ **Im getting impersonate, always make sure you officialy deal with me, my username is @mmrtghk only without anything else** 
 
-💬Contact https://t.me/mmrtghk 🔗
+💬 Telegram: https://t.me/mmrtghk 🔗
+📞 Whatsapp: +31684214286
